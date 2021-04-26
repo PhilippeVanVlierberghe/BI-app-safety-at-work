@@ -1,1 +1,0 @@
-# BI-app-safety-at-work
